@@ -35,6 +35,7 @@ List of all github handles of the class of 2024<br>
 
 ## N
 
+[Naman Anand](https://github.com/Naman-72)<br>
 ## O
 
 ## P
